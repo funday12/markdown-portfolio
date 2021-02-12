@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+In this cruel world, this is my daily activity :
+*Crying
+*Screaming
+*Having a suicide thought
