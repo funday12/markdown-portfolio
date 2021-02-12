@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+My _life_ is so **blue** so I start to coding to make it ~~better~~ **even _worst_**
