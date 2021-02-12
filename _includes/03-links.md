@@ -1,1 +1,1 @@
-url : twitter.com/asupan_
+[Idol](www.jkt48.com)
